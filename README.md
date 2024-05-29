@@ -1,1 +1,1 @@
-Eltibiz
+ELTIBIZ adalah satu-satunya Lembaga Pendidikan Teknologi Informasi dan Bisnis terdepan yang menggabungkan pengalaman bisnis pendirinya dan keahlian para praktisi di dunia Teknologi Informasi untuk memberikan pendidikan dan pelatihan terbaik bagi setiap peserta program, dengan filosofi “TAHU BERBISA”. Artinya kita tidak cukup hanya TAHU saja ILMU/TEORI tertentu tetapi juga BISA menggunakannya dengan MAHIR, untuk bisa menghasilkan uang (pendapatan) dengan cepat dan benar.
